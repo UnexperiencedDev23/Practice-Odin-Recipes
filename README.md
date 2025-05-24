@@ -1,0 +1,1 @@
+Will add all information i have learned so far into after doing this project.
